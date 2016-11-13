@@ -1,2 +1,0 @@
-# sweepacoin.github.io
-s
